@@ -1,0 +1,1 @@
+やはりprogramingの可能性！！
